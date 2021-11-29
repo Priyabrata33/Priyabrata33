@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Priyabrata33
 - 👀 I’m interested in developing new thigs...
-- 🌱 I’m currently learning MCA.
+- 🌱 I’m currently learning MCA NITp
 - 💞️ I’m looking to collaborate on different projects.
 - 📫 How to reach me ..
 
